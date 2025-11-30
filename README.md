@@ -1,1 +1,0 @@
-# bebington-scout-district.github.io
